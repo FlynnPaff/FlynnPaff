@@ -5,4 +5,3 @@
 </p>
 
 
-JoJo's Bizarre Adventure fan.
